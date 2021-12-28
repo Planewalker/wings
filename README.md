@@ -6,6 +6,15 @@ and in 2013 was gifted to Planewalker.com for archival purposes after hosting an
 maintaining the site was no longer possible for Ken. Wings continues on Planewalker
 available at wings.planewalker.com.
 
+This archive is presented as is. The content may not have aged well over the years.
+We leave it to the reader to determine their own comfort level with the material.
+
+Links to locations off site may have rotted over time and left no forwarding address.
+This archive will not be updated to address link-rot but we hope Google and the
+good services of the Internet Archive (https://archive.org/) may be able to help you.
+
+Emails have been scrubbed from this archive for security reasons.
+
 A collection of fiction compiled by our fave Smoke mephit, Conjestico.
 ----------------------------------------------------------------------
 " Who's this? Another visitor to my hall of books? Well, fellow biblophile,
